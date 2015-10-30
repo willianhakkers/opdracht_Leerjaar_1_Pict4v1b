@@ -6,4 +6,6 @@ DIT IS EEN TEST BESTAND DAT IS GEHACKT DOOR RICK
 
 <img src="http://i2.kym-cdn.com/photos/images/newsfeed/000/632/652/6ca.jpg" alt="ayy lmao" style="width:304px;height:228px;">
 
+<h1>ZO RICK HEEFT ZIJN HUISWERK OOK WEER GOED GEDAAN OF NIET ROB?</h1>
+
 
